@@ -1,1 +1,1 @@
-# COR_WebDev
+Good evening Good morning I'm John Roderix Dimayuga and this is my COR README.file i can't do the push git sir because i don't have a laptop right now and i use a mobile phone to put this HTML files on my Github. Thank you sir for uderstanding.
